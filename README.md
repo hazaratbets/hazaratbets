@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="yHjlJDtHen9jiujDuha2R2zfh8XJa5q9UOYYV2b00As" />
 <h1 align="center">سایت حضرات بدون فیلتر</h1>
 <h3 align="center">سایت پیش بینی حضرات بزرگترین و معتبر ترین سایت شرط بندی ایران است که شما می توانید به راحتی در آن بازی کنید</h3>
 
